@@ -8,5 +8,5 @@
 **😄 Pronouns: IT (lol, who cares?)** <br>
 **⚡  Fun fact: I know how to break into unpatched Windows 10 Environments. (ethically)** <br>
 **⚡  Fun fact 2: I like to race ungoverned Ferraris on the streets of Miami.** <br>
-**⚡  Fun fact 3: I'm the stepson of a Software Developer, and I write better code than him.** <br>
-##  Always Remember He Who Controls The Last Hop Controls The Network. 
+**⚡  Fun fact 3: I'm the son of a Software Developer, and I write better code than him.** <br>
+##  Always Remember He Who Controls The Last Hop Controls The Network.  ;)
